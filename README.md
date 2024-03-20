@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **divyeshvankar.iitg@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eHKdWcQpr-ox7E12popMnlD9jYTf3rM3/view?usp=drivesdk](https://drive.google.com/file/d/1eHKdWcQpr-ox7E12popMnlD9jYTf3rM3/view?usp=drivesdk)
+- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1tj_LgYLv7HpjWEkct3u1NCBfSVLFJj5E/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
